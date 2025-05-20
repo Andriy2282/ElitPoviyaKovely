@@ -1,2 +1,0 @@
-# ElitPovyaKovelyu
-Анкета Індивідуалки 
